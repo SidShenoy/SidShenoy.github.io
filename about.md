@@ -9,4 +9,4 @@ I am a tech enthusiast interested in learning about new technologies adopted by 
 
 ### Contact me
 
-[siddhant8897[at]gmail[dot]com](mailto:siddhant8897@gmail.com)
+siddhant8897[at]gmail[dot]com
